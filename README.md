@@ -1,0 +1,2 @@
+# VAMZ
+Semestralka2025
